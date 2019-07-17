@@ -1,1 +1,1 @@
-# MQ17Diplom
+# MQ17Diplom Болдырев Егор
